@@ -4,3 +4,4 @@
 - Arthur Moreira de Carvalho — RA: 323126778
 - Leandro Henrique — RA: 323132411
 - Lorena Malta — RA: 323131530
+- Esther Aires — RA: 32213606
